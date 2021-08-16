@@ -1,4 +1,4 @@
-Main GitHub account for Audrey Aaliyah Jensen🦊 <br>
+Main GitHub account for Audrey Aaliyah J🦊 <br>
 Home to random projects, and a stash for repos when my home git isn't working <br>
 - 💕 Proudly gay, trans, and autistic :3
 - 👩‍🎓 Computer Engineering major @ University of Arkansas <br>
